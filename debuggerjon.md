@@ -1,3 +1,6 @@
+## Debugger Jon : The Metaverse Detective (Short story)
+
+
 Outside the detective’s office.
 
 Narration : I’m debugger Jon. The world’s #1 debugger. People come everyday in my office to help them solve cases in the metaverse.
